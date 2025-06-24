@@ -25,7 +25,7 @@
 
 点击访问：<a href="https://hl413.pages.dev/"> 双反差婊吃瓜爆料黑料免费</a>
 
-点击访问：<a href="https://hl419.pages.dev/"> 每日分享最新黑料门今日黑料免费</a>
+点击访问：<a href="https://hl373.pages.dev/"> 黑料社</a>
 
 点击访问：<a href="https://hl445.pages.dev/">每日分享最新吃瓜网站爆料</a>
 
